@@ -55,7 +55,7 @@
 ---
 
 ## 📬 **Conecte-se comigo!**  
-📧 **E-mail:** emidiobarbosa@alu.ufc.br  
+📧 **E-mail:** emidioschwartz@gmail.com  
 🔗 **LinkedIn:** [linkedin.com/in/emídio-b-5428a3338](https://www.linkedin.com/in/emídio-b-5428a3338)  
 🐙 **GitHub:** [github.com/EmidioSchwartz](https://github.com/EmidioSchwartz)  
 
